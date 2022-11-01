@@ -1,1 +1,0 @@
-# mirzaukas.github.io
